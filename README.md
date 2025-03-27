@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Islasgr
 - 👀 I’m interested in developing games!
 - 🌱 I’m currently learning Unreal engine
-- 📫 How to reach me email or insta 
+- 📫 How to reach me: email or insta 
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Highland cows are my fav animals!
